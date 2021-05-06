@@ -1,0 +1,1 @@
+### GoSTRIPES analysis of Phytophthora investans 
